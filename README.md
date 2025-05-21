@@ -45,5 +45,6 @@ for more details aditec35@gmail.com
 ![file-TNMoexDdvv7S7BL7wGkdXG](https://github.com/user-attachments/assets/405f0018-704f-4907-a4f2-b8b91d3e5c99)
 
 based on Kapitza battery 
-![Uploading Screenshot_20250521-191721-216.png…]()
+![Screenshot_20250521-191710-820](https://github.com/user-attachments/assets/5be409c6-2430-4bf9-a79f-eeba823b368c)
+![Screenshot_20250521-191721-216](https://github.com/user-attachments/assets/52f2a7fa-1eab-487c-b164-63e0a73cd592)
 
